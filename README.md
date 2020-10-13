@@ -1,2 +1,4 @@
-Hi my name is Jenevie Atanoso, 19 years old From Dumaran, Palawan.
-BS in Computer Science Student
+
+HI, my name is Jenevie N. Atanoso, 19 years old 
+BS in COmputer Science Student.
+
